@@ -8,6 +8,3 @@
 3.RTX4090 PCI-E5.0
 4.世纪佳缘优质成交客户纪念衫
 5.凡人终有一死 凡人终将侍奉
-
-
-![ee473f503c4a74aa78d6ac4ffba3308](https://user-images.githubusercontent.com/37392762/233907588-9ec0e1ba-d112-4b92-af39-e5197b722b6e.png)
